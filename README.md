@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Franz
-- 👀 I’m interested in building web projects
+- 👀 Sometimes you need to slow down in order to speed up.
 
 
 
